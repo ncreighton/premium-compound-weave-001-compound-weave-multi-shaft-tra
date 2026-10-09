@@ -1,0 +1,2 @@
+# premium-compound-weave-001-compound-weave-multi-shaft-tra
+Tired of scribbling shaft assignments on scrap paper or losing your place mid-draft? The Compound Weave Multi-Shaft Tracker turns your Notion workspace into a clear, searchable hub for every threading, tie-up, and treadling sequence you create.  This template solves the chaos of managing multiple shafts—whether you're designing complex compound wea
